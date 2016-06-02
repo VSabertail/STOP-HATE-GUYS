@@ -1,5 +1,5 @@
 # STOP-HATE-GUYS
-I have recently been blocked from Ogar-Unlimited AJS Development for putting to many issues them 
+  I have recently been blocked from Ogar-Unlimited AJS Development for putting to many issues them 
 thinking i'm spamming and thinking im StormGS and i dont know who the hell StormGS and they where calling
 me nazi's and i have been through a lot my mom and dad got separated and i can't see them and i have to stay
 with my grandmother and my grandpa who i love so much died and i have ADD and other issues with my anger and 
